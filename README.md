@@ -1,5 +1,5 @@
 # Hello
-![PTSDWARF](i.https://imgur.com/a/5G9C2kh.png)
+![PTSDWARF](https://i.imgur.com/1BkfEFV.png)
 <!--
 ![Big Dwarfeloper](https://i.imgur.com/wSNKD2R.png)
 Nothing going on here really... 
